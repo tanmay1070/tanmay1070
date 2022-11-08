@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **tanmaydhamdhere11@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1De3MiGA_J8tUiqHyWpT1BKSV-0NbRccn/view?usp=sharing](https://drive.google.com/file/d/1De3MiGA_J8tUiqHyWpT1BKSV-0NbRccn/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1De3MiGA_J8tUiqHyWpT1BKSV-0NbRccn/view?usp=sharing](My Resume)
 
 - ⚡ Fun fact **Loves to play soccer**
 
